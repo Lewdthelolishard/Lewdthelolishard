@@ -1,2 +1,1 @@
-<div class="tenor-gif-embed" data-postid="10347927" data-share-method="host" data-aspect-ratio="1.77515" data-width="100%"><a href="https://tenor.com/view/shoujo-ramune-tenka-chie-komako-gif-10347927">Shoujo Ramune GIF</a>from <a href="https://tenor.com/search/shoujo-gifs">Shoujo GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-<a target="_blank" href="https://tenor.com/view/shoujo-ramune-tenka-chie-komako-gif-10347927">
+<img src="https://c.tenor.com/uWcmzl3j1DAAAAAC/shoujo-ramune.gif" alt="Shoujo Ramune GIF - Shoujo Ramune Tenka GIFs" style="max-width: 833px;" width="833" height="468.3534136546185">
