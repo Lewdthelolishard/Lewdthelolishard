@@ -1,1 +1,1 @@
-<img src="https://c.tenor.com/uWcmzl3j1DAAAAAC/shoujo-ramune.gif" alt="Shoujo Ramune GIF - Shoujo Ramune Tenka GIFs" style="max-width: 833px;" width="833" height="468.3534136546185">
+<img src="https://64.media.tumblr.com/9115d757e08341b406774c5ca8c996f7/tumblr_pgsh50NSQQ1wsj6zro1_1280.gifv" alt="" class="featherlight-image featherlight-inner" style="width: 630.246px; height: 420px;">
