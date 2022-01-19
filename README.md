@@ -1,1 +1,1 @@
-<img src="https://c.tenor.com/yfNhPZ6QDMQAAAAC/sayaka-miki.gif" alt="美樹さやか 魔法少女まどか☆マギカ 嬉しい　歌う GIF - Sayaka Miki GIFs" style="max-width: 833px;" width="833" height="468.3534136546185">
+<img src="https://c.tenor.com/D3HruYtUS5oAAAAC/madoka-magica-animation.gif" alt="Madoka Magica Animation GIF - Madoka Magica Animation GIFs" style="max-width: 518px;" width="518" height="432.53000000000003">
