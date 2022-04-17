@@ -1,1 +1,1 @@
-<img src="https://c.tenor.com/D3HruYtUS5oAAAAC/madoka-magica-animation.gif" alt="Madoka Magica Animation GIF - Madoka Magica Animation GIFs" style="max-width: 518px;" width="518" height="432.53000000000003">
+img class="userimg" src="https://image.myanimelist.net/ui/vDDtKEIh0bhXRTzDVaEj7MuIT7IYkpXl32lPHjhlz581DMya1bzX6FL9eijQmLqD">
